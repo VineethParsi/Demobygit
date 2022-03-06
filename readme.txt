@@ -4,4 +4,6 @@ Asshole.
 Bastard.
 You piece of shit.
 Piss off bitches.
+Fuck you
 Son of a bitch.
+Son of Mfucker
